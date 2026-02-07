@@ -7,4 +7,4 @@
 
 #### I am open to occasional assignments, full-time work offers and contact about my projects and extensions.
 
-### Portfolio: https://orlowski.works/
+### Portfolio: https://orlowski.work/
